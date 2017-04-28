@@ -1,1 +1,0 @@
-# venturecomp.github.io
